@@ -1,2 +1,3 @@
 # youngh4ck3r
-Uss it for your own risk
+Use it for your own risk 
+Am not resposible for any harm you done 
